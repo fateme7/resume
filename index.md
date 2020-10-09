@@ -1,6 +1,6 @@
 
 ### About Me
-I am fateme I have  I was 20 years old I study computer engineering At Payame Noor University, North Tehran malard
+I am fateme  I am 20 years old I study computer engineering At Payame Noor University, North Tehran malard
 ### Skills
  + typing
 .
