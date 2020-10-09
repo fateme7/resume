@@ -12,5 +12,4 @@ I am fateme I have  I was 20 years old I study computer engineering At Payame No
 - Quera Profile: <a href="https://quera.ir/profile/fativadiie">My Profile</a>
 
 درباره من
-من فاطمه هستم ۲۰ ساله هستم دانشجوی رشته کامپیوتر واحد ملارد هستم
-مهارت من تایپیست است
+تمن فاطمه هستم ۲۰ساله هستم دانشجوی رشته کامپیوتر واحد ملارد هستم مهارت من تایپیست اس
